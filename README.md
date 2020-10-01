@@ -6,5 +6,5 @@ The paper: https://www.tandfonline.com/doi/full/10.1080/13504851.2019.1644444
 
 
 
-Dr.Zheng Pan is an assistant professor at South China Normal University （PhD，Economics, Northern Illinois University）
+Dr.Zheng Pan is an Assistant Professor at South China Normal University （PhD，Economics, Northern Illinois University）
 http://faculty.scnu.edu.cn/zheng_pan
